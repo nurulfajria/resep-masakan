@@ -2,4 +2,4 @@
 
 
 ## Bahan 
-- indomie goreng spicy Korean
+- indomie goreng spicy Korean 
